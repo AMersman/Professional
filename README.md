@@ -1,7 +1,7 @@
 # Professional
 A repository of my professional experience and work. 
 
-I have have earned a Bachelor's degree and am earning my Master's degree, which demonstrates a commitment to lifelong learning and personal development.
+I have earned a Bachelor's degree and am earning my Master's degree, which demonstrates a commitment to lifelong learning and personal development.
 I value a willingness to explore new opportunities and take on new challenges. My history shows a clear track record of success in your role, including increasing sales revenue and managing successful projects. Through these I have developed strong skills in leadership, communication, and problem-solving.
 I have developed strong interpersonal skills and are able to adapt to different working environments in my experience working with diverse teams and customers.
 
